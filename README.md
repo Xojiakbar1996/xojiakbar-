@@ -1,0 +1,2 @@
+# xojiakbar-
+Pul tushdimi 
